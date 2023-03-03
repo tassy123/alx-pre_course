@@ -1,1 +1,1 @@
-Continuation of the task[C
+Continuation of the task
